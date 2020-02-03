@@ -1,2 +1,2 @@
 # asadbekmadvaliev.github.io
-here you go!
+ishlar qale Baxodir?
